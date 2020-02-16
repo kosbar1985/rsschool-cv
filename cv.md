@@ -5,7 +5,7 @@
 [k.baranovskiy@mail.ru](mailto:k.baranovskiy@mail.ru)  
 [k.baranovskiy85@gmail.com](mailto:k.baranovskiy85@gmail.com)
 
-Married, daughter Bogdana (4 years), son Dominic (2 years).
+**Married.** Daughter Bogdana (4 years), son Dominic (2 years).
 
 **Hobbies:** chess, football, table tennis, ice hockey.
 
